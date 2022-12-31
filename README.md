@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Vandah-Offical
-- 👀 I’m interested in De-fi,Crypto and Web 3
+- 👋 Hi, I’m Vandah
+- 👀 I’m interested in De-fi,NFTs,Crypto and Web 3
 - 🌱 I’m currently learning Defi 
 - 💞️ I’m looking to collaborate on Crypto/NFTS projects 
 - 📫 How to reach me ...  Discord:Defiquin_Vandah#7659             Telegram :@Vandah_Defiquin      Twitter: @DEFIquin_Vandah
